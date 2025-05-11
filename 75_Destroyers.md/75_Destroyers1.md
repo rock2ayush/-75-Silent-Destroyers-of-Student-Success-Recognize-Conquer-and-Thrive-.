@@ -1,6 +1,9 @@
 # 75 Silent Destroyers of Student Success: Recognize, Conquer, and Thrive!
 
+![alt text](<../ChatGPT Image May 10, 2025, 09_47_36 PM.png>)
+
 Below is a list of 76 behaviors and mindsets that hinder student success, along with daily strategies to overcome them.
+
 
 ## 1. Procrastination
 - **Why it Destroys You**:
